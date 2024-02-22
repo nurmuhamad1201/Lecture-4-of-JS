@@ -49,4 +49,5 @@
 
  ![question](https://th.bing.com/th/id/R.7210efeb047afe233369a81dd809c2d7?rik=get0rwuzBbxQYA&pid=ImgRaw&r=0)
  *savolhoyatonro metavoned dar telegram navised*
+ --linki telegram dar profil zakripit shdagiyay--
  
